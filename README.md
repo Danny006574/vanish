@@ -1,0 +1,2 @@
+# vanish
+vanish privacy policy
